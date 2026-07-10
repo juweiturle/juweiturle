@@ -43,7 +43,9 @@ Je vois l'informatique industrielle et les méthodes comme deux forces compléme
 
 ## 📫 Restons en contact !
 
-*   **LinkedIn :** [Mon profil LinkedIn](Lien_A_Ajouter)
-*   **Email :** [Mon adresse email](Lien_A_Ajouter)
+*   **LinkedIn :** Mon profil LinkedIn www.linkedin.com/in/
+erwin-justice-eyoum-certain-596b16196
+
+*   **Email :** Mon adresse email: edgaray@outlook.com
 
 Transformons ensemble les données industrielles en leviers de performance ! 🛠️
